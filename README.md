@@ -17,7 +17,7 @@ Utilizei o "ChatGPT" para revisar minha pesquisa sobre Aprendizado Supervisionad
 
 O e-book apresenta um conteúdo envolvente, demonstrando os conceitos básicos sobre Aprendizado Supervisionado.
 
-[LINK PARA O E-BOOK AQUI](https://www.canva.com/design/DAGQY8Ebw8Y/6gmGoazFX6oewX9lO1j-fA/edit?utm_content=DAGQY8Ebw8Y&utm_campaign=designshare&utm_medium=link2&utm_source=sharebutton)
+[LINK PARA O E-BOOK AQUI](https://www.canva.com/design/DAGQY8Ebw8Y/M77WDi4Dao3fFeeu9cSFAw/view?utm_content=DAGQY8Ebw8Y&utm_campaign=designshare&utm_medium=link&utm_source=editor)
 
 ## 💭 Reflexão
 
